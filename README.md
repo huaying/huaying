@@ -1,8 +1,7 @@
-👋🏻 🅷🅴🅻🅻🅾 🆃🅰🅸🆆🅰🅽
 
-Huaying Tsai
+👋🏻 Huaying Tsai
 
-🤠 thoth: https://thoth.tw/
+🤠 thoth - knowledge sharing platform: https://thoth.tw/
 
 👾 tech blog: https://june.monster/
 
